@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows new Transition: title-animation & timeline-editing offers the most advanced Shotcut for PC | Shotcut for Windows transition, with
 
 
 
